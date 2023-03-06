@@ -1,1 +1,1 @@
-🌐 [l-taku news network](//ltlpwl.com)
+🌐 [Ltaku news network](//ltlpwl.com)
